@@ -1,1 +1,1 @@
-# Original-T-rex
+# Classical-T-rex
